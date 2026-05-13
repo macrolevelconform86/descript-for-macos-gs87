@@ -1,4 +1,4 @@
-# 
+# Descript for macOS ultimate Script: EQ & echo-removal offers the most advanced Descript for macOS script, with EQ and echo-removal. Ideal for professional video editors and
 
 
 
